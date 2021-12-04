@@ -1,0 +1,1 @@
+[[sterosa]] and [[idle master]] of [[Barrelbend]] and the woman [[working for us]]
